@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @K0X0K
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...🗿
 - 🌱 I’m currently learning ... 💂‍♂️
-- 💞️ I’m looking to collaborate on ...🪴
+- 💞️ I’m looking to collaborate on ...🗿
 - 📫 How to reach me ...Tap in⛷️
 - 😄 Pronouns: ...⛷️
 - ⚡ Fun fact: ...yahaha⛷️
